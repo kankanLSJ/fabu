@@ -18,6 +18,12 @@
 
 ---
 
+**XN网盘免费下载方法及链接引导**
+
+[https://docs.qq.com/sheet/DZmZtS3dPQmRoUGJG?tab=BB08J2](https://docs.qq.com/sheet/DZmZtS3dPQmRoUGJG?tab=BB08J2)
+
+---
+
 **最新资源永久获取方式1：永久地址发布页**
 
 [https://bitbucket.org/kankanlsj/fabu/](https://bitbucket.org/kankanlsj/fabu/)
