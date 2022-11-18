@@ -12,9 +12,7 @@
 
 **福利资源(备用)：**[https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
 
-**目录文件下载地址(主线)：**[http://www.xunniupan.co/file-3001164.html](http://www.xunniupan.co/file-3001164.html)
-
-**目录文件下载地址(备用)：**[http://www.xunniupan.co/file-3001164.html](http://www.xunniupan.co/file-3001164.html)
+**目录文件下载地址(主线)：**[http://www.xunniupan.co/file-3004887.html](http://www.xunniupan.co/file-3004887.html)
 
 ---
 
