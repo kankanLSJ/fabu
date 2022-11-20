@@ -4,15 +4,11 @@
 
 请选择最新资源地址
 
-**分享资源(主线)：**[https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
+**分享资源(正规)：**[https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
 
-**分享资源(备用)：**[https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
+**福利资源(瑟瑟)：**[https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
 
-**福利资源(主线)：**[https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
-
-**福利资源(备用)：**[https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
-
-**目录文件下载地址(主线)：**[http://www.xunniupan.co/file-3004887.html](http://www.xunniupan.co/file-3004887.html)
+**目录文件下载地址(更新于2022年11月20日)：**[http://www.xunniupan.co/file-3010895.html](http://www.xunniupan.co/file-3010895.html)
 
 ---
 
