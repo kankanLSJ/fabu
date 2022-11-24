@@ -4,15 +4,15 @@
 
 请选择最新资源地址
 
-**分享资源(正规)：**[https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
+**福利资源(瑟瑟)：**[点击访问在线目录](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
 
-**福利资源(瑟瑟)：**[https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
+**分享资源(正规)：**[点击访问在线目录](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
 
-**目录文件下载地址(更新于2022年11月20日)：**[http://www.xunniupan.co/file-3010895.html](http://www.xunniupan.co/file-3010895.html)
+**目录文件下载地址(更新于2022年11月24日)：**[点击下载](http://www.xunniupan.co/file-3042148.html)
 
 ---
 
-**XN网盘免费下载方法及链接引导**
+**XN网盘免费下载方法及链接引导(网盘VIP无限速、无广告)**
 
 [https://docs.qq.com/sheet/DZmZtS3dPQmRoUGJG?tab=BB08J2](https://docs.qq.com/sheet/DZmZtS3dPQmRoUGJG?tab=BB08J2)
 
