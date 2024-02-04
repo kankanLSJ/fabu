@@ -1,14 +1,22 @@
 ## 务必、务必、务必收藏本发布页，随时查看最新地址！
 
 ---
+## 必看！！！资源解压方式及密码获取教程
 
-请选择最新资源地址
+**地址1：**[点击访问在线目录](https://www.kdocs.cn/l/cj4E6HowAeK1)
 
-**福利资源(瑟瑟)：**[点击访问在线目录](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
+**地址1：**[点击访问在线目录](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
 
-**分享资源(正规)：**[点击访问在线目录](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
+---
+最新资源地址
 
-**目录文件下载地址(更新于2023年02月10日)：**[点击下载](http://www.xunniupan.co/file-3381625.html)
+**地址1：**[点击访问在线目录](https://docs.qq.com/sheet/DZlNWZUhPZUxHZ0FO?tab=BB08J2)
+
+**地址2：**[点击访问在线目录](https://docs.qq.com/sheet/DZllQeEpLcmZjTGpN?tab=BB08J2)
+
+**地址3：**[点击访问在线目录](http://www.xunniupan.co/file-3381625.html)
+
+**地址3：**[点击访问在线目录](http://www.xunniupan.co/file-3381625.html)
 
 ---
 
