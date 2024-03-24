@@ -3,9 +3,9 @@
 ---
 ## 必看！！！资源解压方式及密码获取教程
 
-**地址1：**[点击查看教程](http://mrw.so/5F1Cvm)
+**地址1：**[点击查看教程](http://mrw.so/5F1Cvm)  http://mrw.so/5F1Cvm
 
-**地址1：**[点击查看教程](http://mrw.so/6o8VP7)
+**地址1：**[点击查看教程](http://mrw.so/6o8VP7)  http://mrw.so/6o8VP7
 
 ---
 
