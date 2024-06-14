@@ -1,19 +1,15 @@
 ## 务必、务必、务必收藏本发布页，随时查看最新地址！
 
 ---
-## 必看！！！资源解压方式及密码获取教程
+## 必看！！！你想要的这里都有
 
-**地址：**[点击查看教程](http://mrw.so/5F1Cvm)  http://mrw.so/5F1Cvm
+**地址1：**[点击进入](http://mrw.so/5F1Cvm)  http://mrw.so/5F1Cvm
 
----
-
-## 最新资源地址
-
-**地址：**[点击访问在线目录](http://mrw.so/696JOv)  http://mrw.so/696JOv
+**地址2：**[点击进入](https://www.kdocs.cn/l/ckghdAsqTqOj)  https://www.kdocs.cn/l/ckghdAsqTqOj
 
 ---
 
-**最新资源永久获取方式1：永久地址发布页**
+**最新资源永久获取方式：永久地址发布页**
 
 [https://bitbucket.org/kankanlsj/fabu](https://bitbucket.org/kankanlsj/fabu)
 
@@ -23,5 +19,5 @@
 
 ---
 
-## 目录网址随时会被和谐,导致无法登陆
-## 请务必收藏本发布页！
+## 目录网址可能会被和谐,导致无法登陆
+## 请务必收藏本发布页
